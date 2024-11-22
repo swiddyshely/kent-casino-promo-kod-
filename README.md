@@ -1,8 +1,8 @@
 # Промокоды Kent Casino, регистрация, бонусы 2024
 
-##Промокод → FVIP
+## Промокод → FVIP
 
-##[KENT CASINO САЙТ](https://linksc.ru/kent_fvip)
+## [KENT CASINO САЙТ](https://linksc.ru/kent_fvip)
 
 ## Сегодня за промокод в Kent casino можно получить:
 
